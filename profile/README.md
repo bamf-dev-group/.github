@@ -23,3 +23,9 @@ The business decides the tools. The outcome decides the build.
 [Visit BAMF Dev Group](https://bamfdevgroup.com)
 
 BAMF Development Group LLC, Hurricane, Utah.
+
+## Connect
+
+**BAMF Dev Group:** [Website](https://bamfdevgroup.com) · [Facebook](https://www.facebook.com/BAMFDevGroup) · [LinkedIn](https://www.linkedin.com/company/bamfdevgroup)
+
+**Justin Daley:** [Instagram](https://www.instagram.com/justindaleyofficial) · [YouTube](https://www.youtube.com/@justindaleyofficial) · [TikTok](https://www.tiktok.com/@justindaleyus) · [X](https://x.com/justindaleyus) · [Threads](https://www.threads.com/@justindaleyus) · [Bluesky](https://bsky.app/profile/justindaley.bsky.social) · [Pinterest](https://www.pinterest.com/justindaleyofficial/) · [LinkedIn](https://www.linkedin.com/in/justin-daley)
